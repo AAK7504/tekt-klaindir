@@ -1,1 +1,0 @@
-# tekt-klaindir
